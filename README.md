@@ -1,2 +1,2 @@
-# Bilal-Resume
+# Resume of Bilal Asif
 Introduction about Bilal
